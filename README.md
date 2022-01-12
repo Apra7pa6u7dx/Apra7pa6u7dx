@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Apra7pa6u7dx
 - 👀 I’m currently working downn
 - 🌱 pls be good to look up to me
-- 💞️ it's slightly comlicated
+- 💞️ it's slightly complicated
 - 📫 not yet 🕊️
 
 <!---
